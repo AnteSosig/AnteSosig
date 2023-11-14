@@ -1,2 +1,2 @@
 ## Dosta neozbiljno
-<img src="https://imgur.com/Cg5HRLO">
+<img src="https://i.imgur.com/Cg5HRLO.jpeg">
